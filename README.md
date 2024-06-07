@@ -1,3 +1,3 @@
-Discord @lostcoastwizard
+Discord: @lostcoastwizard
 
-Profile Artwork @Xenotics
+Profile Artwork: @Xenotics
