@@ -2,4 +2,4 @@
 
 Discord: @lostcoastwizard
 
-Profile Artwork: @Xenotics
+Profile Art: @Xenotics
